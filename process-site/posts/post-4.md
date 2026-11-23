@@ -1,0 +1,5 @@
+---
+title: 10 October, 2026
+---
+
+Today, the collector—unaware of my ongoing archival of his collection—mentioned that he wanted to clean up the shoe boxes and the gold club box in the family room within the next week, but he just “hadn’t had time to get to it” (translated from Cantonese to English as accurately as possible). Notably, he didn't not mention cleaning up the pile of boxes next to the couch, nor the large printer box that has been sitting there for around two years now, nor the large mess on the table in that same room, nor the hoard of boxes in the basement. I told him that I needed those boxes for my project and asked if I needed the “long box” (the golf club box) too because there were “plenty of those boxes downstairs.” This indicates he is aware of the identical empty boxes in the basement but does not do anything about them. He also pointed out where to find more shoeboxes: underneath the family room chairs for instance, showing once again, that he is aware of these boxes but does not do anything about them.
